@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @MatheusAndy15, 
+- 👋 Hi, I’m @MatheusAndy15,a dumb Brazilian
 - 👀 I’m interested in find ports of nostalgic games and PC games 
 - 🌱 I’m currently learning I don't know anything about programming, but I'm certainly interested in learning
 - 💞️ I’m looking to collaborate on ...
